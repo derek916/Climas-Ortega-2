@@ -1,6 +1,6 @@
 # Servicios de Climatización - Instalación, Mantenimiento y Reparación de Aires Acondicionados
 
-Bienvenido al sitio web profesional de **Derek**, técnico especializado en climatización. Ofrezco servicios completos de **instalación, mantenimiento y reparación de equipos de aire acondicionado**, tanto residenciales como comerciales.
+Bienvenido al sitio web profesional de **Salvador Ortega**, técnico especializado en climatización. Ofrezco servicios completos de **instalación, mantenimiento y reparación de equipos de aire acondicionado**, tanto residenciales como comerciales.
 
 ## ¿Quién soy?
 
